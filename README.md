@@ -9,11 +9,9 @@ I’m a passionate **SEO Expert**, **WordPress Developer**, and **Digital Market
 - 🎓 I train students and business owners in SEO and WordPress to become self-reliant.
 - 🧠 I focus on real growth — no shortcuts, no spammy tactics.
 
-### 🏢 Founder of [Elga Cloud](https://elgacloud.com)
+### 🏢 Founder of [Elga Cloud](https://elgahost.com)
 A fast-growing web hosting company that empowers businesses and learners to get online with ease.
 
-### 🛒 Creator of [Digitize Kart](https://digitizekart.com)
-Digitize Kart is my platform to showcase digital products, services, and tools that help businesses grow digitally. Think of it as a one-stop shop for your online journey.
 
 ### 🛠️ Skills & Tools
 
