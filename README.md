@@ -9,7 +9,7 @@ I’m a passionate **SEO Expert**, **WordPress Developer**, and **Digital Market
 - 🎓 I train students and business owners in SEO and WordPress to become self-reliant.
 - 🧠 I focus on real growth — no shortcuts, no spammy tactics.
 
-### 🏢 Founder of [Elga Cloud](https://elgahost.com)
+### 🏢 Founder of [Elga Host](https://elgahost.com)
 A fast-growing web hosting company that empowers businesses and learners to get online with ease.
 
 
